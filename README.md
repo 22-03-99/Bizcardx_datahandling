@@ -91,6 +91,6 @@ This project is licensed under the MIT License. Please review the LICENSE file f
 
 Contact
 
-📧 Email: kalaichem998@gmail.com
+📧 Email: prabhakaran20999@gmail.com
 
-🌐 LinkedIn: https://www.linkedin.com/in/kalai-mathi-p-334777247/
+🌐 LinkedIn: www.linkedin.com/in/prabhakaran-s-115211200
